@@ -1,0 +1,2 @@
+# Hayat
+Hukuka dair herşey.
